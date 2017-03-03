@@ -1,1 +1,1 @@
-# photosite
+#I carry a camera everywhere I go and when I'm not creating and building websites I'm snapping photos of my life in motion. Life is so fast moving and a photo is the only thing that stops it in its tracks. Slow down, enjoy life!
